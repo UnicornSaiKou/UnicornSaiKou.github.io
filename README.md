@@ -1,2 +1,3 @@
 # UnicornSaiKou.github.io
-图源官店四周年特典海报
+主图作者桜いちか-ユニコーン
+https://www.pixiv.net/artworks/84399388
